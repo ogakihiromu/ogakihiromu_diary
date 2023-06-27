@@ -1,0 +1,1 @@
+# ogakihiromu_diary
